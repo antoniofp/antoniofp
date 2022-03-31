@@ -1,2 +1,2 @@
-Miembro Horus #6348
+Horus #6348
 PrepaTec Colima
